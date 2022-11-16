@@ -1,2 +1,2 @@
 # WeiFantastic.github.io
-hello
+汪心如去噶
